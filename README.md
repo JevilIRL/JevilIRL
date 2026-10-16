@@ -1,7 +1,4 @@
-TTHIS CLOWN HAS STUFFS 2 DO .. CANT DECORAT THIS BECAUS OF SCHOOL + WORK ('grown ass clown btw' - cody) .. ROLLS MY EYES, EYES :(  (I JUS WANN SILLYMAX ALL DAY UGBUHU)
-
--
-
-ALS THIS ISN A SPAMFOLLOW!! THIS IS (ONEOF MY TWO) MAINS!! BUT I FOLLOW ALMOS EVERYCLOWN I SEE ANYWAYS, DONT FEEL THE NEED 2 FOLLOW BACK THOU!!
+art by cody! 
+<img width="2048" height="2048" alt="image" src="https://github.com/user-attachments/assets/ff3a6082-4c16-4878-84b6-568fc22dc68c" />
 
 <p align="center"><img width="640" height="640" alt="xje" src="https://github.com/user-attachments/assets/843284fe-8d80-4140-8cc6-4cd5a9dd03ec" />
